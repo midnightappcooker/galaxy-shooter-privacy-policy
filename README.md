@@ -1,0 +1,1 @@
+# galaxy-shooter-privacy-policy
